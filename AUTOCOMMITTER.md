@@ -1,1 +1,1 @@
-There are more fake flamingos in the world than real ones.
+Coca-Cola would be green without coloring.
