@@ -1,1 +1,1 @@
-Sloths can hold their breath longer than dolphins can.
+There are more fake flamingos in the world than real ones.
