@@ -1,1 +1,1 @@
-The human stomach gets a new lining every few days.
+A bolt of lightning travels at about 270,000 mph.
