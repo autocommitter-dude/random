@@ -1,1 +1,1 @@
-A group of ferrets is called a "business."
+Sea otters hold hands when they sleep to avoid drifting apart.
