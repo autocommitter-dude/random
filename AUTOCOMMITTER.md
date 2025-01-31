@@ -1,1 +1,1 @@
-It rains diamonds on Jupiter and Saturn.
+A group of ferrets is called a "business."
