@@ -1,1 +1,1 @@
-Humans are the only animals with chins.
+It rains diamonds on Jupiter and Saturn.
