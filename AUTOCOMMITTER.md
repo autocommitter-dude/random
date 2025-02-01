@@ -1,1 +1,1 @@
-Octopuses have three hearts.
+Humans are the only animals with chins.
