@@ -1,1 +1,1 @@
-You can’t sneeze with your eyes open.
+The world’s largest snowflake was 15 inches wide.
