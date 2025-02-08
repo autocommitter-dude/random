@@ -1,1 +1,1 @@
-lemons float in water but limes sink.
+The word "bookkeeper" has three consecutive double letters.
