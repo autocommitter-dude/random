@@ -1,1 +1,1 @@
-The wood frog can hold its pee for up to eight months.
+Tomatoes have more genes than humans.
