@@ -1,1 +1,1 @@
-Elephants are the only animals that can’t jump.
+A group of ferrets is called a "business."
